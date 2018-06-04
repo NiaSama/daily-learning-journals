@@ -1,0 +1,4 @@
+  #Andragogy vs. Pedagogy
+  #Today I learned...
+"[Adult learners] demand that their learning is relevant to their real life issues, problems, and tasks, and that their education will boost their performance levels and help them live their lives in a better, and more satisfying way." (Links to an external site.)Links to an external site.  In other words, understanding your motivation for learning contributes to the effectiveness of your learning, and your learning journal is a place to explore those thoughts. What are your motivations for learning?
+My motivation for learning as of lately is because I've felt stagnate and dissatisfied with my own life. Since graduating in college and work being slow as of late, life has been kind of boring. Forcing myself into codefellows helped pushed me to time manage and discover the value of time and learning new concepts. 
