@@ -1,0 +1,5 @@
+  #Andragogy vs. Pedagogy
+  #Today I learned...
+  "What motivates adults to find time for their learning in their busy schedule? Mostly intrinsic motivators." (Links to an external site.)Links to an external site. In other words, adults are motivated by internal forces rather than by external expectations, and your learning journal provides an outlet for considering and noting those internal forces. Which of your internal forces for learning can you concretely identify?
+  
+  An internal force that helps force me to learn is the motivation to not stay stagnant. When you stay stagnant for to long, I notice that for me I get depressed and unmotivated to do much for myself. Creating self disipline sucks but in the end you recieve greater satisfaction. Feeling inspired and being able to look back and see how much youve accomplished is what makes your work feel worth the time and effort.
