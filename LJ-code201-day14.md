@@ -1,0 +1,4 @@
+  #Today I learned...
+"Adults need to know why to learn something; as soon as they answer this question, they are ready to start." (Links to an external site.)Links to an external site. In other words, the why applies to both large-scale (learning web development as a new profession) and small-scale (learning a particular tool or technique), and your learning journal is an excellent place to identify and contemplate those whys. They are important. So... what is your why?
+
+My why is that I don't want to be stagnant. After college I was thriving well in my professional life, but not in my personal life. I would do nothing but work and sleep. After doing code fellows, I was able to get a routine and see the value in the time that I have. After codefellows I have a whole list lined up on what I want to learn and why I want to invest in those things. But the biggest 'why' I have is to not be stagnant and increase life satisfaction. 

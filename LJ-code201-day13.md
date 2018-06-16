@@ -1,0 +1,4 @@
+  #Today I learned...
+Consider the "learning pyramid as shown in the image below. Do you find that matches the way that you learn, or would you weight the activities differently? If so, how?
+
+I do feel as though this pyramid is generally accurate. I don't learn much from being in lecture, but I do learn a lot but re-watching lecture and writing down the concepts, pausing, rewinding, etc, helps me out a lot when it comes to lecture. I feel like the discussion group (50%) is the weakest link for me. I don't learn a lot but discussing with people that i'm uncomfortable with. I think for me personally, I get too caught up in not trying to say something stupid that it becomes more for a stressful experience. If it is with a group of people I am comfortable with, then discussion becomes more helpful. Teaching others and practice by doing is the most beneficial for me in terms of learning as well. 
